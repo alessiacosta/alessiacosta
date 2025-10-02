@@ -1,2 +1,5 @@
-## Hi, I'm Alessia 👋
+## Hi there 👋 I'm Alessia!
 
+## ⚡️ A Few Quick Facts:
+
+- 
