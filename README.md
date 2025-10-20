@@ -7,4 +7,4 @@ I am a marine conservation biologist currently halfway through my PhD candidatur
 - 🔭 Currently working on an assessment of social equity distribution
 - 👯‍♀️ Eager to collaborate on all things coral reef projects
 - 🙋🏻‍♀️ Ask me about marine protected areas
-- 📈 Love some good old biostatistics
+- 📈 Love to learn more about statistics
