@@ -1,6 +1,6 @@
 ## Hi there 👋 I'm Alessia!
 
-I am a marine conservation biologist currently halfway through my PhD candidature at James Cook University, Australia. My project focuses on designing equitable marine protected areas that generate ecological and economic benefits by combining modelling, economic estimation, social science and spatial planning.  
+I am a marine conservation biologist currently halfway through my PhD candidature at James Cook University, Australia. My project focuses on designing equitable marine protected areas that generate ecological and economic benefits by combining modelling, economic estimation, social science, and spatial planning.  
 
 ## ⚡️ A Few Quick Facts:
 
